@@ -8,3 +8,12 @@ Pensando nisso, o Guia Runge preparou essa matéria exclusiva com os principais 
 
 Secção: Limpeza das Mãos
 Normalmente os restaurantes oferecem as toalhinhas quentes para que o cliente higienize as mãos antes de começar a comer. Caso o restaurante não tenha esse costume, acostumem-se a sempre lavar bem as mãos antes, pois alguns pratos podem ser consumidos com as mãos.
+
+
+Hashi
+
+O hashi ou fachi, são as varetas utilizadas como talheres em boa parte dos países do Extremo Oriente, como China, Japão, Vietnã e Coréia.
+Os hashis são usualmente feitos de madeira, bambu, marfim ou metal, e muito raramente até de plástico. O par de pauzinhos deve ser manuseado com a mão direita, entre o dedo polegar e os dedos anelar, médio e indicador, e serve para apanhar pedaços de comida ou empurrá-los diretamente da tigela para a boca.
+
+Para aqueles que estão começando a utilizar o hashi e ainda não tem prática, os restaurantes oferecem o "clip" que auxilia bastante:
+
